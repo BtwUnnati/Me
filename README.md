@@ -7,7 +7,7 @@
 </h2>
 
 <p align="center">
-  <img src="https://te.legra.ph/file/1f070ea3147e2a3ef44e4.jpg">
+  <img src="[https://vault.pictures/p/39f0f7e4e4174c0e8e093430eecd78b9">
 </p>
 
 
