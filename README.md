@@ -1,4 +1,4 @@
-# Btw_Me
+# 𝐵𝑡𝑤 𝐷𝑒𝑣
 
 ━━━━━━━━━━━━━━━━━━━━
 
@@ -7,7 +7,7 @@
 </h2>
 
 <p align="center">
-  <img src="[https://vault.pictures/p/39f0f7e4e4174c0e8e093430eecd78b9">
+  <img src="https://vault.pictures/p/39f0f7e4e4174c0e8e093430eecd78b9">
 </p>
 
 
@@ -16,6 +16,5 @@
 </h3>
 
 - <b>[𝁑 𝐷 𝑒 𝑣𓂃🕊️💗](https://t.me/Slwix)  
-<b> 𝁑 𝐷 𝑒 𝑣𓂃🕊️💗 </b>
 
 ━━━━━━━━━━━━━━━━━━━━
